@@ -1,0 +1,1 @@
+# USD-TO-UAH-Woocommerce
